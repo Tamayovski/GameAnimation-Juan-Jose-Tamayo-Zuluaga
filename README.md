@@ -1,3 +1,12 @@
+# Proyecto2-GameAnimation-Juan-Jose-Tamayo-Zuluaga
+
+
+
+https://github.com/user-attachments/assets/cb6ae97f-caf3-418e-8186-d3fe172961de
+
+
+
+
 # Proyecto1-GameAnimation-Juan-Jose-Tamayo-Zuluaga
  
 
