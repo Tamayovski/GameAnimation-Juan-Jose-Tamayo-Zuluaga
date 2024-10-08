@@ -11,6 +11,9 @@ https://github.com/user-attachments/assets/a892f086-a642-4600-993c-944474f64c8e
 
 ![image](https://github.com/user-attachments/assets/2c523b6c-ec5e-4933-92ca-f8e2bccd850a)
 
+![image](https://github.com/user-attachments/assets/0ecbef15-6130-48cb-a60c-b21168cd0e3e)
+
+
 Puños
 
 https://github.com/user-attachments/assets/2d7b746d-4f3c-45fa-8b27-8bafae77498a
