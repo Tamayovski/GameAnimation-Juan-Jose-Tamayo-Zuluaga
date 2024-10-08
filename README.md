@@ -25,6 +25,9 @@ https://github.com/user-attachments/assets/2d7b746d-4f3c-45fa-8b27-8bafae77498a
 
 ![image](https://github.com/user-attachments/assets/2145648e-fccf-41aa-9af7-213a17501302)
 
+![image](https://github.com/user-attachments/assets/18b501c3-e884-4375-9275-672168b3cd6a)
+
+
 # Proyecto2-GameAnimation-Juan-Jose-Tamayo-Zuluaga
 
 
