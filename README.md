@@ -1,5 +1,7 @@
 Entrega Final SOLO Juan Jose Tamayo Zuluaga
 
+Creo que al exportar a WEBGL se dañaron algunas animaciones.
+
 Link del playable: https://play.unity.com/en/games/b77c6c61-fbc2-4c85-89c3-fcb4465546a0/final-ga-solo-juan-jose-tamayo-zulu
 
 
