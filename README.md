@@ -1,3 +1,14 @@
+Entrega Final SOLO Juan Jose Tamayo Zuluaga
+
+Link del playable: https://play.unity.com/en/games/b77c6c61-fbc2-4c85-89c3-fcb4465546a0/final-ga-solo-juan-jose-tamayo-zulu
+
+
+
+https://github.com/user-attachments/assets/007b8e6f-85ea-4932-adea-d4430efcd36e
+
+
+
+
 # Proyecto3-GameAnimation-Juan-Jose-Tamayo-Zuluaga
 
 
